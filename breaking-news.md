@@ -1,3 +1,3 @@
 # Springfield Breaking News 
 
-Homer Simpson was seen eating a donut at the Springfield Nuclear Power Plant.
+Kient Brockman reports that Homer Simpson caused an emergency at the Springfield Nuclear Power Plant.

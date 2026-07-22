@@ -1,3 +1,3 @@
 # Springfield Breaking News 
 
-Homer Simpson was seen eating a donut at the Springfield Nuclear Power Plant.
+Mr. Burns claims that the Springfield Nuclear Power Plant has never been safer.
